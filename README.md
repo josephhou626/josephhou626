@@ -1,5 +1,5 @@
 # Hi 👋
-🎓 I am a graduate student from National Chung Hsing University, Taiwan
+🎓 I am a graduate student from National Chengchi University, Taiwan
 
 
 ## Github records
